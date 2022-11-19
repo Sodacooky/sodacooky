@@ -1,1 +1,1 @@
-Blog: [Link](https://blog.sodacooky.plus)
+~~你找到了这个页面！超越了80%的招聘者！~~
